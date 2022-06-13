@@ -1,8 +1,8 @@
 Ola! me chamo RobaruMiamoto
 - 👀 estou interessado em estudar
 - 🌱 gosto de jogos, series nagito e o sam
-- 💞️ procuro colaborar com empresas interessadas
-- 📫 chame no privado ou o numero +55 45 9837-5393
+- 💞️ procuro pessoas legais 
+- 📫 se conseguir nao me chame ou vai no privado
 
 <!---
 RobaruMiamoto/RobaruMiamoto is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
