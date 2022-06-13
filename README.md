@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @RobaruMiamoto
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+Ola! me chamo RobaruMiamoto
+- 👀 estou interessado em estudar
+- 🌱 gosto de jogos, series nagito e o sam
+- 💞️ procuro colaborar com empresas interessadas
+- 📫 chame no privado ou o numero +55 45 9837-5393
 
 <!---
 RobaruMiamoto/RobaruMiamoto is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
