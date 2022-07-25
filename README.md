@@ -1,6 +1,6 @@
 Ola! me chamo RobaruMiamoto
 - 👀 estou interessado em estudar
-- 🌱 gosto de jogos, series nagito e o sam
+- 🌱 gosto de jogos, series e o nagito 
 - 💞️ procuro pessoas legais 
 - 📫 se conseguir nao me chame ou vai no privado
 
